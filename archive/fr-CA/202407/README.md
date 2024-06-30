@@ -1,0 +1,2 @@
+## Bing Wallpaper (2024-07)
+![](https://www.bing.com/th?id=OHR.UbudBali_FR-CA5056160520_UHD.jpg&w=1000)Today: [Sculpture sur pierre dans un temple à Ubud, Bali, Indonésie (© R. Schönebaum/plainpicture)](https://www.bing.com/th?id=OHR.UbudBali_FR-CA5056160520_UHD.jpg)
