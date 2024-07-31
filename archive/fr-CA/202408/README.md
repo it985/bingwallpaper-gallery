@@ -1,0 +1,2 @@
+## Bing Wallpaper (2024-08)
+![](https://www.bing.com/th?id=OHR.HoodoosBryce_FR-CA6799802149_UHD.jpg&w=1000)Today: [Cheminées de fée, Sunset Point, Parc national de Bryce Canyon, Utah, États-Unis  (© Tim Fitzharris/Minden Pictures)](https://www.bing.com/th?id=OHR.HoodoosBryce_FR-CA6799802149_UHD.jpg)
