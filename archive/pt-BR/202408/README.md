@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-08)
-![](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg&w=1000)Today: [Refúgio Nacional de Vida Selvagem do Atol de Palmyra, Oceano Pacífico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg&w=1000)Latest: [Refúgio Nacional de Vida Selvagem do Atol de Palmyra, Oceano Pacífico (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_PT-BR3061095594_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |

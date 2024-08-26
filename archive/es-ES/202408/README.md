@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-08)
-![](https://www.bing.com/th?id=OHR.PalmyraAtoll_ES-ES2724340692_UHD.jpg&w=1000)Today: [Reserva Natural Nacional del Atolón Palmyra, Océano Pacífico Central, EE. UU. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_ES-ES2724340692_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalmyraAtoll_ES-ES2724340692_UHD.jpg&w=1000)Latest: [Reserva Natural Nacional del Atolón Palmyra, Océano Pacífico Central, EE. UU. (© Ian Shive/Tandem Stills + Motion)](https://www.bing.com/th?id=OHR.PalmyraAtoll_ES-ES2724340692_UHD.jpg)
 
 |      |      |      |
 | :----: | :----: | :----: |
