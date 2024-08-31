@@ -1,0 +1,2 @@
+## Bing Wallpaper (2024-09)
+![](https://www.bing.com/th?id=OHR.DjanetAlgeria_FR-CA6148111657_UHD.jpg&w=1000)Latest: [Formations rocheuses et dunes de sable dans le Sahara, Djanet, Algérie (© Airpano/Amazing Aerial Agency)](https://www.bing.com/th?id=OHR.DjanetAlgeria_FR-CA6148111657_UHD.jpg)
