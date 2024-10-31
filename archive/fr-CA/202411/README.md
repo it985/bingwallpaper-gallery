@@ -1,0 +1,2 @@
+## Bing Wallpaper (2024-11)
+![](https://www.bing.com/th?id=OHR.GargoyleParis_FR-CA4719321760_UHD.jpg&w=1000)Latest: [Chimères de la cathédrale Notre-Dame de Paris (© scaliger/Getty Images)](https://www.bing.com/th?id=OHR.GargoyleParis_FR-CA4719321760_UHD.jpg)
