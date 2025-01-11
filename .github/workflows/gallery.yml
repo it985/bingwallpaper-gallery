@@ -124,8 +124,3 @@ jobs:
   #           git@e.coding.net:orangeeeen/gallery/gallery.git
   #         ssh_private_key:
   #           ${{ secrets.CODING_PRIVATE_KEY }}
-      - name: Delete Workflow Runs
-        uses: Mattraks/delete-workflow-runs@v2
-        with:
-          retain_days: 7
-          keep_minimum_runs: 6
