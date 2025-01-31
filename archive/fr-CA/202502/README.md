@@ -1,0 +1,2 @@
+## Bing Wallpaper (2025-02)
+![](https://www.bing.com/th?id=OHR.PlainsZebra_FR-CA6166027619_UHD.jpg&w=1000)Latest: [Zèbres des plaines au lever du soleil, parc national de Mokala, Afrique du Sud (© EcoPrint/Shutterstock)](https://www.bing.com/th?id=OHR.PlainsZebra_FR-CA6166027619_UHD.jpg)
