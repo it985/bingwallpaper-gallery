@@ -1,0 +1,2 @@
+## Bing Wallpaper (2025-03)
+![](https://www.bing.com/th?id=OHR.BhutanMonastery_FR-CA0854071680_UHD.jpg&w=1000)Latest: [Monastère Taktshang, Bhoutan (© Baron Reznik/Getty Images)](https://www.bing.com/th?id=OHR.BhutanMonastery_FR-CA0854071680_UHD.jpg)
