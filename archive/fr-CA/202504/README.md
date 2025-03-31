@@ -1,0 +1,2 @@
+## Bing Wallpaper (2025-04)
+![](https://www.bing.com/th?id=OHR.ItalyOstuni_FR-CA1443154374_UHD.jpg&w=1000)Latest: [Ostuni au crépuscule, Pouilles, Italie (© Feng Wei Photography/Getty Images)](https://www.bing.com/th?id=OHR.ItalyOstuni_FR-CA1443154374_UHD.jpg)
